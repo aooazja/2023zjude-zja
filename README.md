@@ -4,4 +4,4 @@
 #### 我的邮箱 my email 22351352@zju.edu.cn
 ![WechatIMG5.jpg](IMG/WechatIMG5.jpg)
 #### 我的简历
-![WechatIMG5.jpg](IMG/WechatIMG5.jpg)
+![IMG_5210.PNG](IMG/IMG_5210.PNG)
